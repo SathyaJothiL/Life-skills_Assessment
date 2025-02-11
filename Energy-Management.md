@@ -25,7 +25,7 @@
 ##### Question 3:
 
 * When I  feel excited
-* When I was like the task or activity
+* When I like the task or activity
 * I lose track of time when doing the activity
 
 
